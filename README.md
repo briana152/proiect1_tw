@@ -1,1 +1,1 @@
-https://briana152.github.io/sites/proiect1.html/
+https://briana152.github.io/sites/project1.html/
